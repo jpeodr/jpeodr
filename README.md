@@ -1,4 +1,1 @@
-### Olá 👋
-
-- 📫 Contato: @jpeodr
 
